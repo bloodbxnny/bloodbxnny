@@ -4,7 +4,7 @@
 
 ![](https://files.catbox.moe/l6naa7.png)
 
-![](https://komarev.com/ghpvc/?username=bloodbxnny&style=flat-square&label=very+awesome+ppl+(⁠✿⁠^⁠‿⁠^⁠)&abbreviated=true&color=4D3435&base=1053)
+![](https://komarev.com/ghpvc/?username=bloodbxnny&style=flat-square&label=very‎‎+‎‎+awesome++ppl++(⁠✿⁠^⁠‿⁠^⁠)&abbreviated=true&color=4D3435&base=1053)
 
 she‎‎ ‎ ‎人‎‎ ‎ ‎her
 
