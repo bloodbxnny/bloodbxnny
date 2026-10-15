@@ -1,7 +1,8 @@
 <div align="center">
 <br> 
 
-<img src="https://files.catbox.moe/njw8qh.png" align="left" height="700" alt="mee" title="scary">
+<img src="https://files.catbox.moe/kfpooj.png" align="center" height="700">
+<br>
 
 <br>
 
